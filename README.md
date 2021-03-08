@@ -2,4 +2,3 @@
 nukchita
 Arraya
 suttichai
-โสดจุงเบยยยย
